@@ -1,0 +1,1 @@
+# yamaguchitamon.github.io
